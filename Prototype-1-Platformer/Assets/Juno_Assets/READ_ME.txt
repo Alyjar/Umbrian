@@ -1,0 +1,1 @@
+This is your artist folder where you can deposit are assets so we can keep track on everyones art.
